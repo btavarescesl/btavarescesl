@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @btavarescesl
 - 👀 I’m interested in music,books and movies
 - 🌱 I’m currently learning how to be a dev
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me @btavaresceslinski@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
